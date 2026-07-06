@@ -1,4 +1,4 @@
-# 
+# Oficial pump.fun sniper bot ferramentas para Mac OS | Instantâneo pump.fun sniper bot ferramentas para PC Windows. Com ordens de mercado e estimativa de taxas de gás — otimizado para máximo desempeño en cada plataforma.
 
 
 
